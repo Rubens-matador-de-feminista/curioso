@@ -1,2 +1,2 @@
 # curioso
-eu-sei-faze-conta
+eu-sei-fazer-conta-cacete
